@@ -1,5 +1,5 @@
 # Contributors
-[Arman khan](https://github.com/Rage4005)
+[Arman khan](https://github.com/Rage4005) 👈(ﾟヮﾟ 👈)
 
 - [Somisrbija](https://github.com/SomiSrbija)
 - [Maxime Benoit](https://github.com/Max13500)
